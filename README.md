@@ -1,3 +1,6 @@
+![image](https://github.com/lARMYI/lARMYI/assets/130585856/b56fea80-668e-421a-85d4-6e4232b3e9f1)
+
+
 👋 Hi, I’m @lARMYI
 
 👀 I’m fascinated by the limitless wonders of artificial intelligence. Like a blacksmith at his anvil, I forge connections between neural networks and human thought, exploring the enchanting frontier where machines meet creativity.
